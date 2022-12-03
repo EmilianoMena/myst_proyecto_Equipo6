@@ -1,0 +1,1 @@
+Se analiza el comportamiento del USDJPY durante el comunicado del indicador Gross Domestic Product Annualized - United States de la economía USA
